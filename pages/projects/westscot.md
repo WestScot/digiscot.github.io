@@ -55,9 +55,18 @@ The Coordinator will also liaise with key partners and other local service users
 ### Month 5
 
 - 5th August 2015 : All part of the John Wheatley Learning Network centres have begun the 2015-2016 year starting 31st July/1st August. This requires all users who have signed up to the Network to re-open their accounts in order to gain access to the G31 Learning Centre and other members of the wider network. Resultantly, Niamh and Marco held a session with one of the G31 Centre's staff on Wed 5th Aug to re-register a number of previous users who have expressed interest in continuing to use the G31 Learning Centre.
-- 5th August 2015 : Niamh attended the weekly Tea Dance at the G31 Centre. This event, organised in collaboration with Thriving Places, attracts a range of attendees from across Glasgow, including Older People and some John Orr Day Care service users who experience learning difficulties. The Tea Dance was cited as an excellent opportunity to meet with some Older People, and local service users with Disabilities. 
+- 5th August 2015 : Niamh attended the weekly Tea Dance at the G31 Centre. This event, organised in collaboration with Thriving Places, attracts a range of attendees from across Glasgow, including Older People and some John Orr Day Care service users who experience learning difficulties. The Tea Dance was cited as an excellent opportunity to meet with some Older People, and local service users with disabilities.
 - 5th August 2015 : Niamh was introduced to Mhairi from Axis (North Glasgow Healthy Living Commmunity) and a volunteer from the Camlachie Communtiy who have exptressed interest in further involvement in the G31 Learning Centre in collaboration with the John Orr Day Care service offered by Care UK.
-- 6th August 2015 : On Dawn McManus' suggestionNiamh and Marco visited the Thenue Housing Association weekly drop-in aimed at giving IT support to Older People in the Bridgeton and Calton areas. This was useful to touch base with similar services and avoid service duplication.
+- 6th August 2015 : On Dawn McManus' suggestion, Niamh and Marco visited the Thenue Housing Association weekly drop-in aimed at giving IT support to Older People in the Bridgeton and Calton areas. This was useful to touch base with similar services and avoid service duplication.
+- Niamh worked on potential text and images for a promotional flyer, to inform tenants of a weekly drop-in session at the G31 Centre.
+- 11th August 2015 : Niamh & Marco met with Stephen Foster & Frances Bradley from Glasgow Life, regarding adult Literacy & Numeracy classes. During the discussion, free courses were identified for WSHA tenants, e.g. 4-week Tablet/iPad course. There were also appropriate accredited courses for those who may wish to gain a qualification. Much of what they do is sign-posting, awareness-raising, taster sessions, so it needs to be considered whether this is what our tenants need, as sustainability might be an issue. 
+- Niamh & Marco also met with Rosemary from Care UK and discussed ways to further include the John Orr Day Care group in the activities happening at G31 Centre. This was broadly-speaking, but with regards to digital inclusion, the group make use of the computer suite every Monday, however this is not tutor-led. 
+- 12th August 2015 : Niamh & Marco met with Kelly Glass from the South Camlachie Youth Project. Their plan to launch a 16-20 week programme for a digital newsletter run by 11 & 12-year olds was discussed, and how the G31 Computer Suite could be a potential venue for the delivery of this. 
+- 19th August 2015 : Niamh attended the Tea Dance at G31 Centre for a second time. At the tea break, 5 older people were identified as needing assistance with operating iPads and smart phones; a plan was put in place for them to bring their devices to the dance the following week where Niamh will be present in the centre for guidance. 
+- A temporary flyer was produced so Niamh & Marco were able to flyer in the Camlachie area, informing tenants that a drop-in IT Skills session would begin the following Wednesday at the G31 Centre. 
+
+
+
 
 ## Evaluation
 
